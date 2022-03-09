@@ -1,6 +1,10 @@
-## new-me
- # DISCORD: imlgnd#1337 
+## new-me | 2022 
+ # Telegram: xxxx (null atm)
+ # email: xxxx (null atm)
     
-    MAIN PROJECT: https://undoxable.tk < CLOSED.
+    MAIN PROJECT: null atm.
 
-## seeya_soon
+## seeya_soon.
+
+
+#saveUkraine
